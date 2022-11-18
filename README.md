@@ -1,2 +1,0 @@
-# proyectoibero
-mis proyectos
